@@ -40,6 +40,9 @@ https://space.bilibili.com/3546387549522168?spm_id_from=333.1007.0.0
 #### QQ
 #### QQ号 411182157 昵称尽力
 
+#### 淘宝搜
+#### qq411182157
+
 <img src="https://gitee.com/QQ411182157/mingpian/raw/master/qq.jpg" width="210px">
 
 #### 微信
